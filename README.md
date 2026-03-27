@@ -13,3 +13,5 @@ Gustavo Henrique Macedo de Lira Filho - 01874798
 José Renan Ramos Santos - 01877034
 
 Iann Zifirino Ramos Sousa - 01908495
+
+Gabriel Gustavo Lemos da Silva - 01896022
